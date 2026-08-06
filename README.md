@@ -1,2 +1,1 @@
-# Rasydan-Ain
-Walimatulurus Ain &amp; Rasydan
+Walimatulurus Ain & Rasydan
